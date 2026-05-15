@@ -1,4 +1,4 @@
-# 
+# vip Plugin for Soda PDF for PC | Soda PDF for Windows - compress-PDFs and redaction offers the most advanced Soda PDF for PC | Soda PDF for Windows plugin, with compress-PDFs and
 
 
 
